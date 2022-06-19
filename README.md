@@ -1,0 +1,1 @@
+# KANK-NOU-SELONOU-GAUT-ER-AWK-function-bash-script
